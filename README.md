@@ -1,4 +1,4 @@
-(https://scontent.fdac15-1.fna.fbcdn.net/v/t39.30808-6/415510732_3611954995787688_4832520060356674830_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=efb6e6&_nc_eui2=AeF8G6TT-iM1TUJUSln2sPy6ZmaZXgGLjNNmZpleAYuM07BWeN9F5CjN6rNRNwBSNIBugU2tPR-G3HZTxh42dBhJ&_nc_ohc=NKcUf0nmFLQAX-CAX3l&_nc_oc=AQnRwh_frd5hciA9NteTg99AOHhQLKOfz1FdnB8fJV79Z6r8pAaj1VkR0zHyBm9NMik&_nc_ht=scontent.fdac15-1.fna&oh=00_AfBBlFqfCMfG2LQqVwOL2pgVw59Yj9oQICXtYZyrz20lCQ&oe=65A3B21A)
+![Iam doing bsc in cse](https://scontent.fdac15-1.fna.fbcdn.net/v/t39.30808-6/415510732_3611954995787688_4832520060356674830_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=efb6e6&_nc_eui2=AeF8G6TT-iM1TUJUSln2sPy6ZmaZXgGLjNNmZpleAYuM07BWeN9F5CjN6rNRNwBSNIBugU2tPR-G3HZTxh42dBhJ&_nc_ohc=NKcUf0nmFLQAX-CAX3l&_nc_oc=AQnRwh_frd5hciA9NteTg99AOHhQLKOfz1FdnB8fJV79Z6r8pAaj1VkR0zHyBm9NMik&_nc_ht=scontent.fdac15-1.fna&oh=00_AfBBlFqfCMfG2LQqVwOL2pgVw59Yj9oQICXtYZyrz20lCQ&oe=65A3B21A)
 ### Hi there 👋
 ###### Hi there 👋
 ### Hi there 👋, Iam Md Shadman Mahfuz Raafi
